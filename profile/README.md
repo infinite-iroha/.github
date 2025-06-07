@@ -1,1 +1,1 @@
-# 
+# Infinite Iroha(∞いろは)
